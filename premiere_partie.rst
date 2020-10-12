@@ -1,0 +1,5 @@
+Il était une fois un[e] [priate|princesse|chevalie|enfant|...]
+qui voulait [un trésor|l'amour|un château|des jouets|...]
+Grâce [au facteur|un email|un rêve|un voyageur] [il|elle] apprend [qu'elle|qu'il]
+doit [sauver une princesse|trouver un trésor pour pouvoir acheter plein de sucettes à la fraisse|aider un roi|arrêter le
+plus grand bandid du siècle].
