@@ -1,6 +1,0 @@
-[Vers une terre à l'ouest|Par la mer, en bateau|En bus|Sur le dos d'un dragon] [elle|il] rencontre son ami[e] [le
-surfeur Bob|l'animal Jama|la fée ministe|la pompière Rebecca].
-[Elle|Il] lui explique qu'[elles|ils] devront affronter [des monstres comme un orgre ou un loup-garou|une série
-d'épreuve de force comme un tir à la corde contre un centaure|des énigmes pour tester leur super-intelligence|le
-magicien Noir seigneur de Crakofel]
-Tout en parlant, [elles|ils] arrivent devant [le château|la ville|sur la planète terre nis|dans la forêt des lucioles].
